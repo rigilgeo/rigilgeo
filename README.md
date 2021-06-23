@@ -1,7 +1,7 @@
 - 👋 Hi, I’m rigil
 - 👀 I’m interested in in playing sports like basketball, soccer, volleyball, table tennis, badminton, etc.
 - 🌱 I’m currently learning chemistry for pre-pharmacy tract. 
-- 💞️ I’m looking to collaborate with environmental activist to lead the world a better place.
+- 💞️ I’m looking to collaborate with environmental groups to lead the world a better place.
 - 📫 My email is rigillaluna@gmail.com
 
 <!---
